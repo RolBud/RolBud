@@ -1,4 +1,4 @@
-### Hi there 👋 I am student on Technical University Košice
+### Hi there 👋 I am student of Technical University Košice
 
 
 - 🔭 I’m currently working on school projects
